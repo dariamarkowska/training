@@ -1,2 +1,1 @@
-# training - qwert
-qwe rty ui 32
+qXe rtXX uiX

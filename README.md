@@ -1,2 +1,2 @@
 # training - qwert
-qwe
+qwe rty ui
